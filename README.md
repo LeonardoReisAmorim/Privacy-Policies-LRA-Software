@@ -1,2 +1,2 @@
-# Privacy-Policies-LRA-Software
-[Privacy Policies LRA Software](https://leonardoreisamorim.github.io/Privacy-Policies-LRA-Software/) 
+# Privacy-Policies-Piadex-VisitVR
+[Privacy Policies Piadex-VisitVR](https://leonardoreisamorim.github.io/Privacy-Policies-Piadex-VisitVR/) 
